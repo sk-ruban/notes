@@ -83,7 +83,7 @@ Notes for [The Complete SQL Bootcamp](https://www.udemy.com/course/the-complete-
 * `SELECT SUM(column) AS new_name`
 * gets executed in the end of the query so unable to use `WHERE` for the new name
 
-![[../images/joins.png]]
+![Joins](./images/joins.png)
 
 ### INNER JOIN
 * joins allow for the combination of multiple tables together
