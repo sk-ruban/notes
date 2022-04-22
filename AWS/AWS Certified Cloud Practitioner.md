@@ -605,7 +605,8 @@ My Notes for the [Ultimate AWS Certified Cloud Practitioner](https://www.udemy.c
 
 * **Security Groups** - to control traffic to and from EC2 **Instance** at the instance level
 * Denies ALL unless **ALLOW rules** for IP and other security groups
-![[../images/security_groups.png]]
+
+![Security Path](images/security_groups.png)
 
 ### VPC Flow Logs
 * Capture IP traffic going into interfaces
