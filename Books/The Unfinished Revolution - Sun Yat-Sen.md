@@ -10,7 +10,7 @@ _Read 15 May 2020_
 * _1883_ 
     * Sun Mei conflicted over Christianity -> Sent him back to Cuiheng
     * He and friend broke into local temple and desecrated wooden idols
-* _1884_ Parents sent him to HK 
+* _1884_ - Parents sent him to HK 
 * Married Lu Muzhen (arranged marriage)
 * China lost Vietnam to France, Burma to England and Korea to Japan
 * Went to med school in HK but his degree wasn't recognised to be a doctor
@@ -21,7 +21,7 @@ _Read 15 May 2020_
 - - - -
 ## Chapter 2 - Baptism of Fire
 * Korean king requested troops of China to quell Tonghak rebellion
-* Chinese didn’t inform Japanese govt as per 1885 Tianjin Convention
+* Chinese didn’t inform Japanese govt as per _1885_ Tianjin Convention
 * Japan sent troops and sunk a Chinese ship → Sino-Jap War
 * Sun created the Xingzhonghui (Revive China Society) with anti-qing sentiments
 * Zhu Qi’s brother forged and betrayed the Guangzhou rebellion to the police
@@ -40,7 +40,7 @@ _Read 15 May 2020_
 * 100 days reform planned by Emperor Guangxu + Kang Youwei thwarted by aunt Cixi 
 * Kang and Sun met in Japan but couldn’t get along due to differences in the views between monarchism & republicanism 
 * Kang went to Canada 
-* 1898 Japan wanted to use Philippines as a base for Chinese revolutionaries
+* _1898_ - Japan wanted to use Philippines as a base for Chinese revolutionaries
 
 - - - -
 ## Chapter 4 - Coalition of the Unwilling
@@ -54,7 +54,7 @@ _Read 15 May 2020_
 * _July 16 1900_ - Russians killed 3000 Chineses citizens in a Russo-Manchurian border
 * _July 14 1900_ - 8 Foreign legations captured Tianjin, Cixi fled to Xi’an
 * _November 7 1901_ - Li Hongzhang died after telling the court to give Manchuria to Russia
-* Sun lost his 2 best lieutenants to assassinations
+* Sun lost his 2 best Lieutenants to assassinations
 * Boxer uprising changed Sun's image from rebel to patriot
 
 - - - -
@@ -63,12 +63,12 @@ _Read 15 May 2020_
 * _1901_ - Cixi issued decree for modern reforms
 * New modern army in 1903 with officers from gentry + Japanese training
 * _1905_ discontinuation of national exams, students encouraged to study abroad -> Chinese students in Japan became nationalistic and less willing to tolerate the monarchy
-* Sun was sleeping with the 14 year old landlord’s daughter from _1900 -1902_
+* Sun was sleeping with the landlord’s daughter from _1900 -1902_
 * Sun went to Vietnam in _1902_ but the French didn’t want to encourage foreign powers into Southern China and thus forbade the shipment of arms 
 * 5 power constitution proposed by Sun in _1906_ - legislative, executive, judicial, examination yuan and censorate yuan (check on corruption)
 * All but 14 of the intellectual students left Sun revolutionary alliance (Zhongguo Tongmenghui)
 * Arab labourers and Nehru celebrated Japan’s defeat of Russia
-* 1905 Boycott of US goods by Chinese
+* _1905_ - Boycott of US goods by Chinese
 * Sun made Singapore his HQ for revolution
 - - - -
 ## Chapter 6 - A Marriage of Convenience
@@ -76,7 +76,7 @@ _Read 15 May 2020_
 * Liang Qichao wanted constitutional monarchy while Sun wanted full republicanism
 * Sun was the only revolutionary leader who had travelled the world and could speak with other foreign leaders
 * _August 13_ - Sun spoke to 700 students about how republicanism could fast track China, expelling the Manchus, Chinese rule, republic and equalise the land
-* Membership of the revolutionary alliance was 963 by 1906
+* Membership of the revolutionary alliance was 963 by _1906_
 * Students didn’t understand equalisation of land value
 * Military rule for 3 years, Political tutelage (local governance but military central gov for 6 years and then 5 power constitution republic)
 * Number of Hunan and Hebei members > Sun’s Cantonese members in RA
@@ -84,11 +84,11 @@ _Read 15 May 2020_
 ---
 ## Chapter 7 - The Nanyang Pivot
 
-* Machu conquest in 1644 drove Ming loyalist to Nanyang 
-* After the fall of the Koxinga regime in 1683 more than 3000 refugees fled to Nanyang
+* Machu conquest in _1644_ drove Ming loyalist to Nanyang 
+* After the fall of the Koxinga regime in _1683_ more than 3000 refugees fled to Nanyang
 * Most married local women and adopted local culture (Peranakan + mestizo)
 * New immigrants in 19th century - Sinkhek (new guest in Hokkien)
-* 19th century rebellions led to another migration (some to California Gold Rush)
+* 19th Century rebellions led to another migration (some to California Gold Rush)
 * _1907_ - 7 million Chinese in Nanyang - 2.8M in Dutch East Indies, 2.7M in Siam & 1M in Malaya
 * Western countries began adopting exclusion laws against Chinese -> Qing court inability to protect led to resentment
 * But Qing govt used Huaqiao for financial support by selling official titles
@@ -118,22 +118,22 @@ _Read 15 May 2020_
 - - - -
 ## Chapter 9 - The Winter of Discontent
 
-* Energy and enthusiasm has disappeared by 1908 due to eviction from Japan + failed uprisings
+* Energy and enthusiasm has disappeared by _1908_ due to eviction from Japan + failed uprisings
 * Dispute over Tongmenghui flag + arguments over the 60000yen bribe by Japan (Zhangbinglin) -> Competition for funds from huaqiao
 * Americans Chinese lost faith in Sun but not those in Malaya
 * _14/11/08_ - Guangxu emperor died (Presumed to be poisoned by Arsenic 2000x levels - by Yuan Shikai or Cixi?), 
 * Cixi died a day later -> Throne went to Puyi ( 2yo) -> no competition from Baohuanghui (Reformists)
-* Yuan Shikai was relieved of all his posts in 1909
+* Yuan Shikai was relieved of all his posts in _1909_
 * The discontent with the government had crossed class barriers
 * Failure of Guangzhou New Army Uprising led to membership drop in HK from 2000 -> 200 
 * Singaporean huaqiao were less hospitable and Sun moved regional office to Penang
-* Guangzhou March 29 uprising also failed - Sun’s 10th failure
+* Guangzhou _March 29_ uprising also failed - Sun’s 10th failure
 * Shanghai Tongmenghui began to pursue its own strategy with no land reforms as not to alienate local elites
 
 ---
 ## Chapter 10 - The Spark that Started the Fire
 
-* In 1896 China had only 300km of railroad. Fear of foreign penetration + disrespect of ancestral graves. By contrast, US - 300000km, Japan 3700km
+* In _1896_ China had only 300km of railroad. Fear of foreign penetration + disrespect of ancestral graves. By contrast, US - 300000km, Japan 3700km
 * New grand council had 8 Manchus but only 4 Hans
 * Government proceeded to nationalise rail lines + loaned 10mil with rail as collateral -> Chinese thought they were conspiring with foreign powers
 * _October 10th 1911_ - Start of revolution - Sgt Xiong (Hubei New Army) and troops took over Wuchang
@@ -147,7 +147,7 @@ _Read 15 May 2020_
 * _Jan 1st 1912_ - But Sun was voted as the President 16 to 1 
 * Sun told YSK he would step down if YSK could get the Qing to abdicate
 * YSKi forced the Qing to abdicate at once to prevent regicide
-* _Feb 12 1912_ Empress Dowager Longyu issued the 3 edict where she admitted that the Qing have lost the Heaven’s mandate
+* _Feb 12 1912_ - Empress Dowager Longyu issued the 3 edict where she admitted that the Qing have lost the Heaven’s mandate
 * Emperor Puyi got 4M Taels annually + allowed to temporarily reside in the forbidden city 
 * YSK's name secretly inserted into the edict to show that he got authority from the Qing emperor
 * YSK wanted the capital to be in Beijing not Nanjing (because of his army)
@@ -275,7 +275,64 @@ _Read 15 May 2020_
 
 ---
 
+## Chapter 15 - The Road to Purgatory
 
+* _October 1st 1925_ 
+    - Borodin announced the Moscow Sun-Yat-Sen Communist University 
+    - Curriculum did not include Sun's works
+    * DXP and Chiang Ching-kuo (Son of CKS) graduated from there
+    * University closed in _1930_ when the KMT-Soviet alliance collapsed
+    * Translation of Marx, Engels and Lenin to Chinese was done there
+* _1929_ - SYS memorial built with 4/5th of the Shanghai municipal budget for _1928_
+* KMT no succession plan
+* Wang Jingwei was elected head of government (Left of centre)
+* CKS formed the NRA which included all military units
+* Anti Communist Hu Hanmin was sent to Moscow to deal with the Comintern
+* _Jan 1926_ 
+    * The KMT left wing was in control of the party 
+    * 2nd National congress: Elected more communists + cooperation with USSR
+* _March 20 1926_ 
+    * CKS declared martial law in Guangzhou (communist plot to kidnap him) 
+    * Communists in the NRA were arrested
+* Wang Jingwei went into hiding in France
+* CKS needed Soviet funds so he requested soviet advisors and apologized for the coup
+* NRA gained control of Wuhan and made it capital
+* Govt in Wuhan carried out Stalin's order to intensify mass movements + arm and mobilise
+* _12 April 1927_ - Troops and Gangsters attacked the working class under CKS. Wuhan govt dismissed CKS from the NRA
+* CKS set up his own government and continued North
+* Power struggle between Trotsky and Stalin - Stalin needed a Chinese victory: Ordered the CPC to raise a separate army and transform Wuhan into communist regime with Wang Jingwei as a puppet - plot was leaked by an agent
+* Wang Jingwei distanced himself and cracked down on the communists
+* Borodin & the Soviet advisors were sent home
+* Chiang handed resignation to reconcile with Wang and reunite the KMT
+* Wang needed CKS back to use gangsters to raise funds
+* Zhang Zuolin withdrew from Beijing and was killed by Japanese Army
+* _December 31 1928_ - Nationalist government declared a unified China
+* Beijing renamed Beiping and Nanjing made the new capital
+* _1931_ - Japanese used railway bomb false flag plot and invaded Manchuria
+* _1930-33_ Chiang launch an encirclement campaign but 100k communists broke through and set out on a long march (12000km) to Shaanxi
+* CKS preoccupation with communists in the face of the Japanese alienated the Chinese intellectuals + army officers
+* Zhang Xueling kidnapped CKS and forced him to deal with Japanese first by allying with the communists
+* _1937_ - KMT and CCP formed the 2nd United Front
+* Soviets entered Manchuria and helped the Communists by providing Japanese arms after WW2
+* Nationalists were initially winning the Civil War
+* _1947_ - Nationalist lost 470k tropps in Manchuria
+* _Sept 1948-Jan 1949_ - Nationalist government lost 1.5M men
+
+---
+## Chapter 16 -  The Man and his Legacy
+* Sun was against killing the Manchus in _1906_
+* Sun was extremely gullible and naive - believed free elections would select honest officials + trusted LSK
+> “ I do not belong to the Christianity of churches but to the Christianity of Jesus who was a revolutionary”
+* Met his concubine, Chen Cuifen in _1891_
+* Married Otsuki Kaori when he was 36 and she was 15
+    * Sun requested that Kaoru’s father, his landlord, to allow her to marry him, but was refused because of the great age difference between them (Sun was 35 while Kaoru was only 13). One year later, Sun Yat-sen proposed marriage again. In 1903 their wedding ceremony was held in Yokohama. Had one daughter with her.
+* Qingling backed Sun’s decision to ally with USSR
+* CKS proposed to her after Sun's death
+* _July 1927_ - She made a statement attacking CKS
+* Deng used Sun’s name to normalise his reformist polices
+* _1994-1999_ - Lee Teng Hui started the 2 China policy
+* During the Carter administration, US severed diplomatic ties with Taiwan and withdrew the military
+* Flag of China - large star CCP - 4 smaller stars represent the 4classes , national + petty bourgeoise, peasants and workers
 
 
 
