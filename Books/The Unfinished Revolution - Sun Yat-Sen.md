@@ -274,7 +274,6 @@ _Read 15 May 2020_
 * Sun died on _March 12 1925_
 
 ---
-
 ## Chapter 15 - The Road to Purgatory
 
 * _October 1st 1925_ 
